@@ -30,3 +30,6 @@ https://github.com/yaoimaster/yaoimaster/assets/125223787/07d44e90-f288-403e-81f
 
 https://github.com/yaoimaster/yaoimaster/assets/125223787/50ee5cfb-2eee-4e4c-bee7-9099c98fcb40
 
+![image](https://github.com/yaoimaster/yaoimaster/assets/125223787/ae7e8ee3-8e90-43d6-90de-df0db4ebd80d)
+
+I DIDNT MAKE THIS. DONT ATTACK ME

@@ -33,3 +33,5 @@ https://github.com/yaoimaster/yaoimaster/assets/125223787/50ee5cfb-2eee-4e4c-bee
 ![image](https://github.com/yaoimaster/yaoimaster/assets/125223787/ae7e8ee3-8e90-43d6-90de-df0db4ebd80d)
 
 I DIDNT MAKE THIS. DONT ATTACK ME
+![image](https://github.com/yaoimaster/yaoimaster/assets/125223787/23e61f3e-9f71-45dd-a782-926166625914)
+ARE U GUYS FUCKING INSANE "I follow people for fun!" AND THEN YOURE FOLLOWING AN ACTUAL FREAK
